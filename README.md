@@ -5,3 +5,4 @@ Renia Dalecka
 Bella Dalecka
 Added Kamil
 Added Emilia
+Added Suzie
