@@ -8,3 +8,4 @@ Added Emilia
 Added Suzie
 
 Added Mamusia Maria
+Added Tatus Kazimierz
