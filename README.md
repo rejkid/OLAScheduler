@@ -17,3 +17,4 @@ Added Jacob Lester
 Added Darek Dalecki
 Added Maria Dalecki
 Added Ania Dalecki
+Added Kasia Dalecki
